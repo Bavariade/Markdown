@@ -1,4 +1,4 @@
-# Though Hardship Comes Beauty
+# Though Hardship Comes Beautyy
 
 **An exploration of resilience, perspective, and the rewards found at the summit.**
 
